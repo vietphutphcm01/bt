@@ -1,2 +1,1 @@
-# NNPTUD_S2
-# Vào nhánh mỗi ngày để lấy code
+2180607880_Nguyễn Việt Phú
